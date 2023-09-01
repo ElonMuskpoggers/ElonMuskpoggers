@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElonMuskpoggers
-- 👀 I’m interested in rocktes
+- 👀 I’m interested in rockets
 - 🌱 I’m currently learning quantum mechanics
 - 💞️ I’m looking to collaborate on the world
 - 📫 How to reach me in joao.vitor.pereira19@escola.pr.gov.br or spaceX
